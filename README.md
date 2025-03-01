@@ -9,11 +9,11 @@
 
 - 📫 How to reach me **ayushsaxena917@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15oB91_z7Lr2XM6dJ6dqrmv5b77ocoPMB/view?usp=sharing](https://drive.google.com/file/d/15oB91_z7Lr2XM6dJ6dqrmv5b77ocoPMB/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/13l8RaYG6s813SOmN-nuBRWa9KGN00AWy/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
-<a href="https://linkedin.com/in/https://www.linkedin.com/in/ayush-saxena-287023261/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/ayush-saxena-287023261/" height="30" width="40" /></a>
+<a href="https://www.linkedin.com/in/ayushsaxena0/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/ayush-saxena-287023261/" height="30" width="40" /></a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
