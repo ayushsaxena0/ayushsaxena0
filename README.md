@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ayushsaxena917@gmail.com**
 
-- 📄 Know about my experiences at [My Resume](https://drive.google.com/file/d/13l8RaYG6s813SOmN-nuBRWa9KGN00AWy/view?usp=sharing)
+- 📄 Know about my experiences at [My Resume](https://drive.google.com/file/d/1pBH9rSkrEut5ZdfboROQr4Q_drHTpa47/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
